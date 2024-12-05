@@ -2,7 +2,7 @@
 - 👀 I’m interested in web development, programming, and creative design
 - 🌱 I’m currently learning HTML, CSS, JavaScript through the NavGurukul Abhilasha Program.  
 - 💞️ I’m looking to collaborate on responsive web applications, game development projects, and innovative design ideas.
-- 📫 How to reach me rukiyabanu111@gmail.com or Linkedin.  
+- 📫 How to reach me rukiyabanu111@gmail.com or [Linkedin(www.linkedin.com/in/rukiya-bano-7a0124298.)]  
 
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I love dancing to Marwadi songs with my friends and enjoy exploring new food recipes!
